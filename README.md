@@ -75,7 +75,7 @@ Hi there! I'm a cybersecurity enthusiast committed to mastering defensive and of
 
 ## Connect With Me
 
-- [LinkedIn](https://linkedin.com/in/your-profile)
+- [LinkedIn](https://linkedin.com/in/titusjoshua)
 - [Twitter](https://x.com/Josh_Hades)
 
 
